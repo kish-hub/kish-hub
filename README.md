@@ -23,6 +23,8 @@ This portfolio is taking shape. As projects are completed, I'll share their code
 ## 🤝 Connect
 
 - [LinkedIn](https://www.linkedin.com/in/kelvin-kilonzo-m)
+- [Upwork](https://www.upwork.com/freelancers/kelvinkilonzo)
+- [Email](kelvinkish833@gmail.com)
 
 ---
 
